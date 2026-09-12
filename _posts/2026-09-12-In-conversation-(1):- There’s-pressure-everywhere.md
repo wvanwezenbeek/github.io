@@ -7,6 +7,7 @@ At the last minute, Peter changed the destination I was travelling to – I was 
 After a very brief stint studying Urban and Regional Planning (chosen because he couldn’t decide between humanties/arts and sciences, and it seemed like a very broad education), he eventually went on to study Physics. The latter decision was based on the advice of his old maths’ teacher, who told him that with a physics degree, you could go on to do anything. And indeed, Peter’s fellow students have ended up in a wide variety of fields. Which is quite remarkable, actually, because I myself also wanted to continue the diversity of my secondary school curriculum, and was advised by my school counsellor to study Materials Science (that way, you’d at least have chemistry, physics and maths, he said).
 Whilst studying in Utrecht, he also took a few modules in science communication and became particularly interested in the (macroscopic) world around him – far more so than in anything (sub-)atomic. He was much more keen to be able to explain the blue of the sky and the white of the clouds.
 
+<img width="3060" height="4080" alt="Peter-2-deze" src="https://github.com/user-attachments/assets/ebddf899-bafb-41cb-bea1-52e6dc2745fd" />
 
 
 ### Making research accessible 
